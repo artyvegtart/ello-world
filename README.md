@@ -1,2 +1,4 @@
 # ello-world
-Randoms notes
+Random notes
+
+I am currently a fitness professional looking to get out of the fitness industry
